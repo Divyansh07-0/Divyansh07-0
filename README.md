@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Divyansh07-0
 - 👀 I’m interested in ...Coding
-- 🌱 I’m currently learning ...bachelor of computer 's application(1st year)
+- 🌱 I’m currently persueing  ...bachelor of computer 's application(1st year)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
